@@ -1,2 +1,3 @@
-# Oryantosyon-odevi
-https://www.youtube.com/playlist?list=PLzbgQY3C7XtCLSKOxSixTWpHVR3yBkWv8
+# Oryantasyon-odevi
+"C:\Users\CASPER\Downloads\Purple Simple Project Proposal Cover Page A4.pdf"
+
